@@ -1,0 +1,5 @@
+-  Hi, I’m Jokers
+-  I’m interested in games.
+-  I’m currently learning how to make games on Core.
+-  I’m looking to collaborate on game making for Core.
+-  How to reach me Discord is Jokers#4493
